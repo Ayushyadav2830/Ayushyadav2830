@@ -1,4 +1,5 @@
 Hi there 👋
+
 An ambitious B.Tech (Hons.) CSE (AI/ML) undergraduate with strong people skills and a keen interest in Artificial Intelligence. Seeking opportunities to apply technical knowledge, grow professionally, and contribute to forward-thinking teams and organizations.
 
 🛠️ Technical Skills
