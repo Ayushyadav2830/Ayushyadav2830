@@ -84,4 +84,4 @@ Scala
 
 🔗 Contact & Profiles
 
-•Phone: (+91) 84630326156 •Email: ayushyadav5254@gmail.com •LinkedIn:  •GitHub: 
+•Phone: (+91) 84630326156 •Email: ayushyadav5254@gmail.com •LinkedIn: 
